@@ -24,7 +24,7 @@ Blogger and Explorer.😉🤩
 versatile in nature,trilingual and nearly Empathetic❤️
 
 
-Programming Languages ,Technologies, Managment mostly intrested in.👉👈
+mostly intrested in Programming Languages ,Technologies, Managment .👉👈
                                                      
 
 
